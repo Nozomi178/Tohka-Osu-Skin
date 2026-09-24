@@ -1,1 +1,1 @@
-My Osu Skin, Since I have a job, making this skin is taking me longer than expected.
+Since I have a job, making this skin is taking me longer than expected (inspired by other osu! skins).
